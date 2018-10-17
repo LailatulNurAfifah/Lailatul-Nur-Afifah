@@ -1,2 +1,0 @@
-# pariwisataa
-infopariwisata neww
